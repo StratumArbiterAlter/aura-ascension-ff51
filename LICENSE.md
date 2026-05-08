@@ -1,4 +1,4 @@
-
+Experience aura ascension like never before with secret Scripts for aura ascension, the #1 Script. Includes auto-upgrade and god mode for unbeatable
 
 
 
